@@ -9,3 +9,4 @@ Gracias por venir a mi perfil a conocer más sobre mi!🤭🤭
 - Me llama mucho  la atencion la programacion, tampoco soy tan buena pero me esfuerzo😖😅
 - Aprendis de AWS.
 - Llevo conocimiento en C#, C++, Python.
+![](https://user-images.githubusercontent.com/44456885/186818830-d02c6362-84a3-49d8-8714-7041f7a2fccc.gif)
