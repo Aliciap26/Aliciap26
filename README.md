@@ -1,16 +1,16 @@
 ![](https://images.cooltext.com/5549117.png)
-### Hola compañeros, un gusto recibirlos por aquí. 😄😄✌⭐
+** Hola compañeros, un gusto recibirlos por aquí. 😄😄✌⭐ **
 
 
-Gracias por venir a mi perfil a conocer más sobre mi!🤭🤭🍕
+### Gracias por venir a mi perfil a conocer más sobre mi!🤭🤭🍕
 
 
--ᐅ Actualmente soy estudiante del Instituto Tecnologico de Tijuana.📓✏
--ᐅ Carrera universitaria : Ing. Sistemas Computacionales.💻🖱🌎
--ᐅ Me gusta mucho hacer deporte, me gustan los animales, escuchar musica, me gustan los video juegos(Pero no soy tan buena jaja🤣🤣)🌻
--ᐅ Me llama mucho  la atencion la programacion, tampoco soy tan buena pero me esfuerzo😖😅
--ᐅ Aprendis de AWS.
--ᐅ Llevo conocimiento en C#, C++, Python.⭐🌎
+- ᐅ Actualmente soy estudiante del Instituto Tecnologico de Tijuana.📓✏
+- ᐅ Carrera universitaria : Ing. Sistemas Computacionales.💻🖱🌎
+- ᐅ Me gusta mucho hacer deporte, me gustan los animales, escuchar musica, me gustan los video juegos(Pero no soy tan buena jaja🤣🤣)🌻
+- ᐅ Me llama mucho  la atencion la programacion, tampoco soy tan buena pero me esfuerzo😖😅
+- ᐅ Aprendis de AWS.
+- ᐅ Llevo conocimiento en C#, C++, Python.⭐🌎
 
 ### Horario en el que me pueden encontrar en el Tec.🌻
 | **Hora** 	|                   **Lunes**                  	|                  **Martes**                  	|                 **Miercoles**                	|                  **Jueves**                  	|                  **Viernes**                 	|
