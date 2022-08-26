@@ -1,5 +1,5 @@
-![](https://images.cooltext.com/5549117.png)
-** Hola compañeros, un gusto recibirlos por aquí. 😄😄✌⭐ **
+**![](https://images.cooltext.com/5549117.png)**
+#**Hola compañeros, un gusto recibirlos por aquí. 😄😄✌⭐**
 
 
 ### Gracias por venir a mi perfil a conocer más sobre mi!🤭🤭🍕
